@@ -1,0 +1,3 @@
+Vikas Kumar Jha, a 41-year-old progressive farmer from Kishanganj, Bihar, is redefining the future of agriculture with a blend of tradition and technology. Armed with a Bachelor of Computer Applications (BCA) degree, Vikas began his career in the IT sector, working in the city for several years. However, the urban grind left him unfulfilled. Driven by a desire to create meaningful change for his family and community, he made the bold decision to leave his corporate job and return to his roots.
+
+With a strong belief that agriculture, when approached with planning and innovation, can be both sustainable and prosperous, Vikas embarked on a journey to transform farming in his village.
